@@ -2,3 +2,5 @@
 > eg:
 * han,i miss u now ,plz call me   --txx 2021年6月29日16:40:47
 love u
+
+### u can visit the board on https://liangbuwen.github.io/meesage_board/    memeda
