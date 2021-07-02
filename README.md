@@ -3,8 +3,10 @@
 # han,i miss u now ,plz call me   --txx 2021年6月29日16:40:47
 > yours:
 #
-# I am very happy 2021年7月1日11:38:55
-有点忙呢 2021年7月2日17点00分
+
 明天一起上班啊
+啊，我明天不上班啊，现在正在计划周末  17点39分
+
+
 ***
 > u can visit the board on <https://liangbuwen.github.io/meesage_board/>    
