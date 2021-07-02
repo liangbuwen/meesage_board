@@ -4,9 +4,8 @@
 > yours:
 #
 
-明天一起上班啊  
 啊，我明天不上班啊，现在正在计划周末 -- 17点39分
-
+啊，你昨天不是刚说要上班吗，那好吧 --117点56分
 
 ***
 > u can visit the board on <https://liangbuwen.github.io/meesage_board/>    
